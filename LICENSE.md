@@ -1,4 +1,4 @@
-# 
+# updated GitKraken for PC | GitKraken for Windows Integration | branch-visualization + pull-request-management offers the most advanced GitKraken for PC | GitKraken for Windows
 
 
 
